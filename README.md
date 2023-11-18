@@ -6,5 +6,5 @@ none
 
 ultriori modifiche
 
-ma
+non l'ha presa
 
